@@ -11,4 +11,6 @@
 Внутри каждой папки – материалы к соответствующим курсам в семаке.
 Доработки и поправки принимаю в тг: @paw_junior
 
+Пока все материалы здесь: https://drive.google.com/drive/folders/1pQcPIMBxQ8EHbbWadBfs4cF48oBetxcm?usp=sharing
+
 Удачи!
